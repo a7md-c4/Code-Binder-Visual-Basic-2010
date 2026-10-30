@@ -12,6 +12,5 @@
 
 ❤️ تحياتي لكم جميعاً
 
-**Ahmed Hacker Tunisia** 🇹🇳
 
 </div>
